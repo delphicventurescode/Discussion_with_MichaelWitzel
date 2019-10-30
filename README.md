@@ -2,7 +2,7 @@
 Some discussion points with Michael Witzel -- not yet communicated to him
 
 
-THIS PERSPECTIVE IS FROM THE POV OF CYBER-FORENSICS, an area I have had the occassion to gain expertise in
+THIS PERSPECTIVE IS FROM THE POV OF Law (really, CYBER-FORENSICS, an area I have had the occassion to gain expertise in)
 ====================================================
 
 Michael Witzel was basically subjected to a lot of trouble by the CAPEEM people. Now, there might be another lawsuit. (All a total waste of everyone's productive time, if u ask me.)/1/3/
