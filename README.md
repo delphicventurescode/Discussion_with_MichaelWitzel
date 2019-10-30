@@ -19,12 +19,14 @@ I think Michael Witzel could get away with even directly emailing people in the 
 Also, he needs 2 be careful what he puts on mailing lists (especially, the Yahoo Group Indo-Eurasian-Research-List or something to the effect. It is his and Steve Farmer's baby. But Steve Farmer has no idea what he is doing - at least. he's inadvertently getting Michael in trouble.) /4/4/
 
 By taking various posts that Michael himself makes 2 his List, and interpreting it in a particular way, the Opposing lawyers are constantly putting Witzel, et cetera, on the backfoot. /1/2/
-I am coming 2 believe that posting things 2 a List like that is a bad idea - in the first place. Better 2 email the Opposition directl and ask them to stop attacking him. That seems like a very reasonable thing 2 do. /2/2/
+I am coming 2 believe that posting things 2 a List like that is a bad idea - in the first place. Better 2 email the Opposition directly and tell them what u r trying 2 say from 2 time. Michael Witzel could even ask them to stop attacking him - kind of blend it in with his other comments. That seems like a very reasonable thing 2 do. Why is 1 or 2 emails sent during a year unreasonable? Sounds plike fair use of electronic communication 2 me. /2/2/
 
 Remember - lawyers will be lawyers. /1/3/
-They will, ofc, interpret emails and messages however -they- want. /2/3/
-They will put a "spin" on it. They will interpret it however suits them best. C'est la vie. /3/3/
+They will, ofc, interpret emails and messages however -they- want. The more of it u put on the Internet on the topic at hand (Hindus, Hinduism, Hindu Studies, et cetera), the more material they have 2 make Opposition look bad. /2/3/
+They will put a "spin" on it. They will interpret it however suits them best. They will do this all day long. C'est la vie. /3/3/
 
  I don't know who is giving Michael Witzel advice. /1/2/
-Whoever it is -- that person has probably already screwed up - by letting his client getting into so much trouble. /2/2/
+Whoever it is -- that person has probably already screwed up or at least not done as good a jon as they could - by letting his client getting into so much trouble. Maybe Michael could even go back and add interpretations for his posts from time to time. ("Look, Judge. I even have an "Annotated Michael Witzel on Indo-Eurasian List" website. What more can you expect me to do? Ask Opposition to stop.") /2/2/
 
+Only reason I am telling all this 2 Witzel is because this is so wrong. /1/2/
+Shouldn't be happening to a professor. /2/2/
