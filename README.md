@@ -5,7 +5,7 @@ Some discussion points with Michael Witzel -- not yet communicated to him
 THIS PERSPECTIVE IS FROM THE POV OF CYBER-FORENSICS, an area I have had the occassion to gain expertise in
 ====================================================
 
-Michael Witzel was basically subjected to a lot of trouble by the CAPEEM people. /1/3/
+Michael Witzel was basically subjected to a lot of trouble by the CAPEEM people. Now, there might be another lawsuit. (All a total waste of everyone's productive time, if u ask me.)/1/3/
 The previous lawsuit went on 4 a long time. May have taken a toll on his health, even. /2/3/
 This type of stuff shd not be happening. Lawsuit-based harassment can be really devastating. Not at all fair. Again, should not be happening -since Michael Witzel is just a professor, an academic. /3/3/
 
