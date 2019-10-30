@@ -25,6 +25,13 @@ Remember - lawyers will be lawyers. /1/3/
 They will, ofc, interpret emails and messages however -they- want. The more of it u put on the Internet on the topic at hand (Hindus, Hinduism, Hindu Studies, et cetera), the more material they have 2 make Opposition look bad. /2/3/
 They will put a "spin" on it. They will interpret it however suits them best. They will do this all day long. C'est la vie. /3/3/
 
+Example of spin -- the Opposition will say Kamala Visweswaran is biased & anti-Hindu because ... "her mother is Christian". /1/3/
+Ppl might know it is wrong. But how do you disprove it? Very difficult. /2/3/
+Need experts 2 attest to the fact that such bias was not, in fact, displayed in the case of the Textbooks. And that costs money. /3/3/
+
+Just to give you an example. /1/2/
+I am saying that this is potential spin that they may place on the matter because one guy wrote online that this is literally what he believes. Whole thing pretty crazy. /2/2/
+
  I don't know who is giving Michael Witzel advice. /1/2/
 Whoever it is -- that person has probably already screwed up or at least not done as good a jon as they could - by letting his client getting into so much trouble. Maybe Michael could even go back and add interpretations for his posts from time to time. ("Look, Judge. I even have an "Annotated Michael Witzel on Indo-Eurasian List" website. What more can you expect me to do? Ask Opposition to stop.") /2/2/
 
