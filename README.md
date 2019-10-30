@@ -16,7 +16,7 @@ If there was something procedurally wrong with what his opponents are doing, the
 The big question for Michael Witzel is -- and this is my advice to him -- try not to make it easy for the Opposition. /1/4/
 I had earlier said that maube posting to a List is the best 2 avoid trouble. I no longer think so. /2/4/
 I think Michael Witzel could get away with even directly emailing people in the Opposition - as long as he does it at a frequency of, say, once every six months. /3/4/
-Also, he needs 2 be careful what he puts on mailing lists (especially, the Yahoo Group Indo-Eurasian-Research-List or something to the effect. It is his and Steve Farmer's baby. But Steve Farmer has no idea what he is doing - at least. he's getting Michael in trouble. /4/4/
+Also, he needs 2 be careful what he puts on mailing lists (especially, the Yahoo Group Indo-Eurasian-Research-List or something to the effect. It is his and Steve Farmer's baby. But Steve Farmer has no idea what he is doing - at least. he's inadvertently getting Michael in trouble.) /4/4/
 
 By taking various posts that Michael himself makes 2 his List, and interpreting it in a particular way, the Opposing lawyers are constantly putting Witzel, et cetera, on the backfoot. /1/2/
 I am coming 2 believe that posting things 2 a List like that is a bad idea - in the first place. Better 2 email the Opposition directl and ask them to stop attacking him. That seems like a very reasonable thing 2 do. /2/2/
